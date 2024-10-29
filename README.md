@@ -1,1 +1,1 @@
-# examen1gsanchis
+Guillem Sanchis
